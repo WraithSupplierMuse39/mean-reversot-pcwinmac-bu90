@@ -1,4 +1,4 @@
-# 
+# Professional mean reversion trading bot presets for Mac OS | Ultimate mean reversion trading bot presets for PC Windows. Featuring dex liquidity pools and mean reversion strategy — optimized for maximum performance.
 
 
 
